@@ -1,4 +1,4 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif) My name is CHONG YING SING ========================================================================================================================================  
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif) My name is CHONG YING SING ================================================================================
 I am a Year 1 Graphics and Multimedia Software student at Universiti Teknologi Malaysia (UTM). 
 ----------------------------------------------------------------------------------------------  
 My field of study has helped me develop strong problem-solving skills and a logical way of thinking. Through my studies, I am gaining knowledge in technology and computing, which prepares me for future challenges in the digital world.
