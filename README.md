@@ -15,6 +15,7 @@ My field of study has helped me develop **logical thinking and problem-solving s
 - 🧠 Currently learning **C++**
 - 🚀 Studying at **Universiti Teknologi Malaysia**
 - 💡 Interested in **software development, multimedia design & technology**
+- My e-Portfolio https://www.canva.com/design/DAG-s8YJcic/oot8vJuZDKxGQP5Lvou-Bw/edit?utm_content=DAG-s8YJcic&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 ---
 
